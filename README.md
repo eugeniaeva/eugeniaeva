@@ -8,6 +8,6 @@
 
 👥 Don't hesitate to engage with my scripts, provide feedback, or collaborate. SEO is a dynamic field, and I'm always open to improving and innovating. You can also connect with me on LinkedIn to discuss SEO trends, share ideas, or explore potential collaborations. Let's elevate our SEO game together!
 
-📫 Reach out to me on [[ LinkedIn](https://www.linkedin.com/in/evgeniaevseeva/)https://www.linkedin.com/in/evgeniaevseeva/]
+📫 Reach out to me on [[ LinkedIn](https://www.linkedin.com/in/evgeniaevseeva/)]
 
 Happy optimizing! 🚀🔎
