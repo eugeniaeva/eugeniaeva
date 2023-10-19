@@ -1,10 +1,5 @@
 ### Hi there 👋
 
-<!--
-**eugeniaeva/eugeniaeva** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 🚀 Welcome to my GitHub profile! 📈
 
 🔍 I'm a results-driven SEO manager with 9 years of experience and a passion for data-driven strategies. Here, I share a treasure trove of Python scripts meticulously crafted to supercharge your SEO efforts. 
